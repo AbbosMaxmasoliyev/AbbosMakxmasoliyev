@@ -53,7 +53,7 @@ Yaqin kelajakda veb-dasturlashni chuqurroq o‘rganish va **Web 3.0**, **Jamstac
 ### 📫 Menga bog‘laning
 Siz bilan hamkorlik qilish yoki shunchaki tanishishdan mamnun bo‘laman. Quyidagi manzillar orqali bog‘lanishingiz mumkin:
 
-- **Email:** example@example.com
+- **Email:** [otajonmaxmasoliyev775@gmail.com](mailto:otajonmaxmasoliyev775@gmail.com)
 - **LinkedIn:** [Otajon(Abbos) Makxmasoliyev](linkedin.com/in/otajon-maxmasoliyev-0a84a5224)
 - **Telegram:** [Otajon(Abbos) Makxmasoliyev](https://t.me/Otajon_Makxmasoliyev)
 
